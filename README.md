@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @R4IN4 
 - 👀 I’m interested in 3D modelling and coding. Game server creating and modding,
-- 🌱 I’m currently learning IT programer,
+- 🌱 I’m currently learning IT,
 - 💞️ I’m looking to collaborate on DC mostly,
 - 📫 How to reach me at DC Facebook and recently all of the community apps
 DC: RaiN#8069
